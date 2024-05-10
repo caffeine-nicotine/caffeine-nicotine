@@ -12,4 +12,4 @@ and other variety Cyber security and AI
 E-Mail : vimelma9810@gmail.com
 
 My Webpage : https://vim.co.kr<br>
-My Progressing Website Project : https://www.sangatap.com/
+My Progressing Website Project : https://sangatap.com/
